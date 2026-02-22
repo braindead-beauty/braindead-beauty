@@ -1,5 +1,8 @@
-## Hi there 👋
+![image alt](https://64.media.tumblr.com/c491b4848be92b27db748551b7fa3143/24b0901e7a1fb37b-5f/s100x200/2ccaf9d92d71ec817804b5a1c4802b504da65c1a.gifv)
 
+[atabook](https://perpetualmotion.atabook.org/)
+[rentry](https://rentry.co/BountifulBeauty)
+[strawpage](https://braiindeadbeautiie.straw.page/)
 <!--
 **braindead-beauty/braindead-beauty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
