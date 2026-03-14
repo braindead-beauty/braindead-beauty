@@ -2,7 +2,7 @@
 
 [rentry](https://rentry.co/BountifulBeauty)
 [atabook](https://perpetualmotion.atabook.org/)
-[strawpage](https://braiindeadbeautiie.straw.page/)
+[strawpage](https://braindead-beauty.straw.page/)
 <!--
 **braindead-beauty/braindead-beauty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
