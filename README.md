@@ -1,4 +1,4 @@
-![image alt](https://files.catbox.moe/5nj8nz.png)![image alt](https://files.catbox.moe/w22dkl.png)![image alt](https://files.catbox.moe/ost3qv.gif)
+![image alt](https://files.catbox.moe/w22dkl.png)
 
 [rentry](https://rentry.co/BountifulBeauty)
 [atabook](https://perpetualmotion.atabook.org/)
