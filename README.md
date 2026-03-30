@@ -1,4 +1,5 @@
-![image alt](https://files.catbox.moe/lmez4k.gif)
+![image alt](https://files.catbox.moe/5nj8nz.png)![image alt](https://files.catbox.moe/w22dkl.png)![image alt](https://files.catbox.moe/ost3qv.gif)
+this sayaka stamp was the closest thing i had to finding a himmel one ok.
 
 [rentry](https://rentry.co/BountifulBeauty)
 [atabook](https://perpetualmotion.atabook.org/)
