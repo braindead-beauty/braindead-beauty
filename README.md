@@ -1,4 +1,4 @@
-![image alt](https://files.catbox.moe/vginne.jpg)
+![image alt](https://files.catbox.moe/bekk6a.jpeg)
 
 [rentry](https://rentry.co/BountifulBeauty)
 [atabook](https://perpetualmotion.atabook.org/)
