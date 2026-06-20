@@ -1,8 +1,9 @@
-![image alt](https://files.catbox.moe/3p7llk.jpg)
+![image alt](https://files.catbox.moe/9e6j7h.png)
 
-[rentry](https://rentry.co/BountifulBeauty)
-[atabook](https://perpetualmotion.atabook.org/)
-[strawpage](https://braindead-beauty.straw.page/)
+![gif alt](https://files.catbox.moe/nc33ch.gif) $\color{#dee6fc}{\text{, ,ৎ read }}$ $\color{#e1defc}{\text{my}}$ $\color{#c7c3e6}{\text{links .ᐟ}}$ ![gif alt](https://files.catbox.moe/p4cb6p.gif) ![gif alt](https://files.catbox.moe/107d7k.gif) $\color{#636885}{\text{ — sign my}}$ [ata](https://perpetualmotion.atabook.org/)
+
+$\color{#e1defc}{\text{ᶻ 𝗓 𐰁}}$ ![gif alt](https://files.catbox.moe/3o5rci.gif) [rentry](https://rentry.co/BountifulBeauty)
+[strawpage](https://braindead-beauty.straw.page/) ![gif alt](https://64.media.tumblr.com/3d3ffe46615e737e70d21cda374f8681/c82d8a07614a5c27-e9/s75x75_c1/629c7f491ea2b49e3fa0f1b1229fe185ba4be5eb.gif)
 <!--
 **braindead-beauty/braindead-beauty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
