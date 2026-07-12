@@ -1,5 +1,5 @@
-![image alt](https://files.catbox.moe/j093kd.gif)
-
+![image alt](https://files.catbox.moe/xv2u9l.gif)
+<p align="center">
 
 <!--
 **braindead-beauty/braindead-beauty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
