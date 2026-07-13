@@ -1,5 +1,9 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=E0F1F7&width=435&lines=%E2%80%9C+She+don%E2%80%99t+know+you+like+me.;.+.+she+could+never+love+you+more%2C;more+than+me.+%E2%80%9C;%E2%80%94+evergreen)](https://git.io/typing-svg)
+
 ![image alt](https://files.catbox.moe/xv2u9l.gif)
+
 <p align="center">
+<a href="https://braindead-beauty.straw.page/" target="_blank">strawpage</a> <a href="https://rentry.co/Thebraindeadbeauty-byi" target="_blank">rentry</a>
 
 <!--
 **braindead-beauty/braindead-beauty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
