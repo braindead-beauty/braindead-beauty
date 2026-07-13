@@ -3,7 +3,7 @@
 ![image alt](https://files.catbox.moe/xv2u9l.gif)
 
 <p align="center">
-<a href="https://braindead-beauty.straw.page/" target="_blank">strawpage</a> <a href="https://rentry.co/Thebraindeadbeauty-byi" target="_blank">rentry</a>
+<a href="https://braindead-beauty.straw.page/" target="_blank">strawpage</a> <a href="https://rentry.co/BountifulBeauty" target="_blank">rentry</a>
 
 <!--
 **braindead-beauty/braindead-beauty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
