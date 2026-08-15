@@ -1,4 +1,4 @@
-remaking my gh and stuff
+remaking my gh and stuff ~_0
 
 <p align="center">
 <a href="https://braindead-beauty.straw.page/" target="_blank">strawpage</a> <a href="https://rentry.co/BountifulBeauty" target="_blank">rentry</a>
