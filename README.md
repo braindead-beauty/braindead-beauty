@@ -1,6 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=E0F1F7&width=435&lines=%E2%80%9C+She+don%E2%80%99t+know+you+like+me.;.+.+she+could+never+love+you+more%2C;more+than+me.+%E2%80%9C;%E2%80%94+evergreen)](https://git.io/typing-svg)
-
-![image alt](https://files.catbox.moe/xv2u9l.gif)
+remaking my gh and stuff
 
 <p align="center">
 <a href="https://braindead-beauty.straw.page/" target="_blank">strawpage</a> <a href="https://rentry.co/BountifulBeauty" target="_blank">rentry</a>
