@@ -1,4 +1,4 @@
-PROFILE WIPPP I’m remaking my gh and stuff ~_0
+I’ll be on hiatus ~~ my profile WILL BE FIXED once I get back ❤️
 
 <p align="center">
 <a href="https://braindead-beauty.straw.page/" target="_blank">strawpage</a> <a href="https://rentry.co/BountifulBeauty" target="_blank">rentry</a>
