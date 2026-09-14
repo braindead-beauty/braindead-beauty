@@ -2,7 +2,7 @@
 <img width="500" height="260" alt="Image" src="https://files.catbox.moe/wg8jzo.gif" />
 
 <p align="center">
-<a href="https://braindead-beauty.straw.page/" target="_blank">strawpage</a> <a href="https://rentry.co/BountifulBeauty" target="_blank">rentry</a>
+<a href="https://perpetualmotion.atabook.org/" target="_blank">ata</a> <a href="https://fluffle.cc/desiq" target="_blank">fluffle</a>
 
 <!--
 **braindead-beauty/braindead-beauty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
