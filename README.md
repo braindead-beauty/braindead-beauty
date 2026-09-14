@@ -1,5 +1,5 @@
 <p align="center">
-<img width="500" height="260" alt="Image" src="https://files.catbox.moe/wg8jzo.gif" />
+<img width="395" height="185" alt="Image" src="https://files.catbox.moe/wg8jzo.gif" />
 
 <p align="center">
 <a href="https://perpetualmotion.atabook.org/" target="_blank">ata</a> <a href="https://fluffle.cc/desiq" target="_blank">fluffle</a>
