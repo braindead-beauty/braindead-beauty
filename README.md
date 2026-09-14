@@ -1,4 +1,5 @@
-I’ll be on hiatus ~~ my profile WILL BE FIXED once I get back ❤️
+<p align="center">
+<img width="500" height="260" alt="Image" src="https://files.catbox.moe/wg8jzo.gif" />
 
 <p align="center">
 <a href="https://braindead-beauty.straw.page/" target="_blank">strawpage</a> <a href="https://rentry.co/BountifulBeauty" target="_blank">rentry</a>
